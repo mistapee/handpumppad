@@ -1,5 +1,5 @@
 These do look pretty good with round hitbox keycaps, but, you do need decent stable stalks n your keys or it's a bit wobbly. After these arrived someone pointed me to a link of a similar device seemingly built with layered perspex. For about 
-8 times more than I charge! Crikey! Niche tax
+8 times more than I charge! Crikey! Niche tax. Ebay link at bottom.
 
 <img width="1600" height="1200" alt="srdftgyhj" src="https://github.com/user-attachments/assets/062fdbf8-ba70-4aa9-b89e-616ac3a39507" />
 
@@ -15,3 +15,6 @@ There's no key LEDs as to keep it in the way it is usually one there's not enoug
 
 
 <img width="1600" height="1200" alt="drftgh" src="https://github.com/user-attachments/assets/c2f26f60-b9e9-420c-bbec-07e28079c86f" />
+
+
+You can buy cheap from OpenRhythmUK on Ebay (https://www.ebay.com/sch/i.html?_ssn=openrhythmuk) as usual. As much as the international shipping fee can be (realistically you still couldn't find cheaper) I am more than reasonable and a lot make contact about creating a bundle for them where not only do I discount everything, usually adding 2 or 3 more controllers doesn't change the shipping fee. I've given away a lot of bonus items for my own entertainment
